@@ -1,3 +1,3 @@
-# there's nothing here...
-For you to see, for you to see
-To see you
+# There’s nothing here for you to see
+# For you to see, to see you
+# There’s nothing here
